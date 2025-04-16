@@ -14,3 +14,4 @@ Discord:https://discord.gg/UuGkmBtHZZ
 
 WeChat Tel：+19096660132
 
+![image](https://github.com/user-attachments/assets/da2a1284-7ad4-4e60-9240-0702bca0299e)
